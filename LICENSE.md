@@ -1,4 +1,4 @@
-# 
+# Oculto Vegas Pro para PC addons é o melhor Vegas Pro para PC addons com transmissão ao vivo e funcionalidade DAW. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
